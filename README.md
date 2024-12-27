@@ -1,5 +1,6 @@
 
-  ![dead-space-2-poster (1) (3)](https://github.com/user-attachments/assets/aeee6809-5fce-4d9f-a5dc-411378560926)
+![dead-space-2](https://github.com/user-attachments/assets/ffeac856-b615-48ca-807b-f07470addacd)
+
 
 
 <!--
