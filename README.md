@@ -1,4 +1,6 @@
-## Hi there 👋
+
+  ![dead-space-2-poster (1) (3)](https://github.com/user-attachments/assets/aeee6809-5fce-4d9f-a5dc-411378560926)
+
 
 <!--
 **awoooooooooooooo/awoooooooooooooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
